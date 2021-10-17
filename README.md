@@ -1,2 +1,2 @@
-# STG's Pro Panel
-STG's Pro Panel! (ITS JUST A EDIT FROM INFINITE YIELD!!!!!!!!!!!!)
+# Dinkee's Pro Panel
+Dinkee's Pro Panel! (ITS JUST A EDIT FROM INFINITE YIELD!!!!!!!!!!!!)
